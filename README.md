@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **valeria.sanchez.ord@gmail.com**
 
-- 📄 Know about my experiences [I work as a web designer. In UNIR university online](I work as a web designer. In UNIR university online)
+- 📄 Know about my experiences: I work as a web designer. In UNIR university online
 
 - ⚡ Fun fact **Love photography**
 
